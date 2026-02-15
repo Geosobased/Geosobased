@@ -2,7 +2,6 @@
 
 hi...
 
-i have no idea how to use this so this is a huge wip bc im stupid
+this is a backup/spam following account
 
-
-[sign my ata..](https://geeeo9068.atabook.org/?page=1&posted=1)
+block if unwanted ! 
